@@ -1,2 +1,2 @@
 # Hacker_Rank-solutions
-gsgs
+gs
