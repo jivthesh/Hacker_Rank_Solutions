@@ -1,3 +1,3 @@
 # Hacker_Rank-solutions
 
-vh.hv.v.kv
+vh.hv.v.k
