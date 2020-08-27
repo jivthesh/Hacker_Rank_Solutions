@@ -1,4 +1,4 @@
 # Hacker_Rank-solutions
 
 
-nf;lnfio;ureh;s;
+nf;lnfio;ureh;s
