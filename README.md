@@ -1,5 +1,4 @@
 # Hacker_Rank-solutions
 
 
-
-jhjkjfhjggggggggggggggggggggggggggggggggggggg
+hjkjfhjggggggggggggggggggggggggggggggggggggg
