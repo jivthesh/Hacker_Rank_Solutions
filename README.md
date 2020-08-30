@@ -1,2 +1,2 @@
 # Hacker_Rank-solutions
-bkbb
+bkb
