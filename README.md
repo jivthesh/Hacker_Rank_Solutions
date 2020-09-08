@@ -1,4 +1,4 @@
 # Hacker_Rank-solutions
 
 
-bvbjsjkbsbbsb vbbkvs
+bvbjsjkbsbbsb vbbk
