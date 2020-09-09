@@ -1,4 +1,4 @@
 # Hacker_Rank-solutions
 
 
-bvb
+b
