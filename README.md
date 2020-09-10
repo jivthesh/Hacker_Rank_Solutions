@@ -4,4 +4,4 @@ n , , ,
 
 bl,n/jnv
 jb
- .,svb
+ .,s
