@@ -1,3 +1,3 @@
 # Hacker_Rank-solutions
 
-,kk;ksvnjk
+,kk;ksvnj
