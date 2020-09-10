@@ -1,3 +1,3 @@
 # Hacker_Rank-solutions
 
-,b.kkbbv;k d v'oe'dkld'v 
+,b.kkbbv;k d v'oe'dkl
