@@ -1,5 +1,5 @@
  # Hacker_Rank-solutions
 hj
 
-kkkkkkcvghhhbbbbbbbbbb
+kkkkkkcvghhhbbbbbb
 bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
