@@ -1,5 +1,4 @@
  # Hacker_Rank-solutions
 hj
 
-kkkkkk
-ggg
+kkkk
