@@ -1,4 +1,4 @@
-b # Hacker_Rank-solutions
+bb # Hacker_Rank-solutions
 hj
 
 kkkk
@@ -6,6 +6,6 @@ bxxxghhhhhgmbbbbbb
 bbbbb
 yyyyyyyynnnnnnnn
 fffffffffff
-gsddddd
+gsddddd bnmbmb
 ngvncfnccf hjjjjjjjjjjjjjjjjjjjjjjjjj
 ,hvkkggg
