@@ -1,6 +1,4 @@
-bb # Hacker_Rank-solutions
-hj
-
+bb # Hacker_Rank-solution
 kkkk
 bbbbb
 yyyyyyyy
