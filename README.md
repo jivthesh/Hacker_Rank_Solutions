@@ -6,5 +6,4 @@ bxx
 bbbbb
 yyyyyyyy
 fffffhnnnnnnnnnnnnnnnnnnn
-gsddddd bnmbmb
-ng
+gsdd
