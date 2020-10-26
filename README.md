@@ -2,7 +2,7 @@ bb # Hacker_Rank-solution
 kkkk
 bbbbb
 yyyyy
-fffffhnn
+fffff
 m n
 ouhbn 
 xc
