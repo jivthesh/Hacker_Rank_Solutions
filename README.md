@@ -9,5 +9,4 @@ xc
 nfgfncncm
 b
 cvbdfbdbdfd
-bvn vbvbv
-c
+bvn vb
