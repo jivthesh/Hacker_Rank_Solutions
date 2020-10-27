@@ -1,5 +1,5 @@
 bb # Hacker_Rank-solution
 kkkk
 bbbbb
-yyyyy
+yy
 f
