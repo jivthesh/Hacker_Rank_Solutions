@@ -7,7 +7,7 @@ d'bnldbldbndb
 dbkldbvb;ldbldbd
 ''bdnk'lbdnbnbldnbd''bdb
 
-bdbnnbdlkbdbnldlbbd
+bdbnnbdlkbd
 b
 dnlb
 ldlbdknbdlbn
