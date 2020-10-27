@@ -9,5 +9,4 @@ dbkldbvb;ldbldbd
 
 bdbnnbdlkbd
 b
-dnlb
 ldlbdknbdlbn
