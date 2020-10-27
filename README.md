@@ -3,7 +3,7 @@ kkkk
 bbbbhkghhhhhhhhhhh
 jfkhjnbk.d.nkbg.dd
 dnbnkdnbndldbdb
-d'bnldbldbndb
+d'
 dbkldbvb;ldbldbd
 ''bdnk'lbdnbnbldnbd'
 
