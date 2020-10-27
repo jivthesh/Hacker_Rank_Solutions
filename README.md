@@ -1,3 +1,13 @@
 bb # Hacker_Rank-solution
 kkkk
-bbbbb
+bbbbhkghhhhhhhhhhh
+jfkhjnbk.d.nkbg.dd
+dnbnkdnbndldbdb
+d'bnldbldbndb
+dbkldbvb;ldbldbd
+''bdnk'lbdnbnbldnbd''bdb
+
+bdbnnbdlkbdbnldlbbd
+b
+dnlb
+ldlbdknbdlbn
