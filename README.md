@@ -5,7 +5,4 @@ jfkhjnbk.d.nkbg.dd
 dnbnkdnbndldbdb
 d'
 dbkldbvb;l
-''bdnk'lbdnbnbl
-
-bd
-
+''bdnk'lbdnbnb
