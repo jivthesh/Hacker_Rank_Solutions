@@ -5,7 +5,7 @@ jfkhjnbk.d.nkbg.dd
 dnbnkdnbndldbdb
 d'
 dbkldbvb;ldbldbd
-''bdnk'lbdnbnbldnbd'
+''bdnk'lbdnbnbl
 
 bdbnnbd
 ldlbdknbdlbn
