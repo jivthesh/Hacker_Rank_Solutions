@@ -1,7 +1,6 @@
 bb # Hacker_Rank-solution
 kkkk
 bbbbhkghhhhhhhhhhh
-jfkhjnb
-
+jfkhj
 bdfh
 jbkh
