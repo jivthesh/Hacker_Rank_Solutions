@@ -1,7 +1,7 @@
 bb # Hacker_Rank-solution
 kkkk
 bbbbhkghhh
-uykykiyiyyt
+uykykiyiy
 iitg,yigtk,t
 itgtr,tjytjrl
 ititiyity
