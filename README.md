@@ -9,7 +9,6 @@ sn;b.jbjsklvsv's
 vd;ld;'mdmvd
 m
 bd
-dm
 bmdmb
 dbmdm
 mb
