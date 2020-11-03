@@ -7,7 +7,7 @@ skl.sbkjkfjf
 sn;b.jbjlvsv'
 [nskbb'eelgknn'dn'fd
 vd;ld;
-bmdmb
+bmd
 dbm
 mb
 ld;mb;
