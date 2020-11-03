@@ -3,9 +3,7 @@ kkkk
 bbbbhk
 ghnfb,jb
 sk
-[nskbb'
-
-mb
+[nskb
 
 dmd;mb
 bm
