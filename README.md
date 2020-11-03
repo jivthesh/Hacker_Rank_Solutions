@@ -6,7 +6,6 @@ ghnfb,jbbv
 skl.sb
 [nskbb'eel
 v
-bm
 d
 mb
 ld;mb;
