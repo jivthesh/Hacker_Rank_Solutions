@@ -12,5 +12,5 @@ dmd;mb
 bm
 m
 dmbd
-m[mb[
+m[m
 bd
