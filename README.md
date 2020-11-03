@@ -12,7 +12,7 @@ dbm
 mb
 ld;mb;
 bm
-dmd;mbd
+dmd;mb
 bm
 mbbm
 dmbd
