@@ -5,8 +5,7 @@ bbbbhkg
 ghnfb,jb
 skl.s
 [nskbb'
-v
-d
+
 mb
 
 dmd;mb
