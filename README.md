@@ -8,7 +8,7 @@ skl.sb
 v
 d
 mb
-ld;
+
 dmd;mb
 bm
 mbbm
