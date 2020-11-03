@@ -2,7 +2,7 @@ bb # Hacker_Rank-solution
 kkkk
 bbbbhk
 ghnfb,jb
-skl.s
+sk
 [nskbb'
 
 mb
