@@ -5,7 +5,7 @@ u
 ghnfb,jbbv
 skl.sbkjkfjf
 sn;b.jbjlvsv'
-[nskbb'eelgknn'dn'fd
+[nskbb'eelgknn'dn'
 vd;l
 bmd
 dbm
