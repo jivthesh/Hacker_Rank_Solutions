@@ -1,7 +1,6 @@
 bb # Hacker_Rank-solution
 kkkk
-bbbbhkg
-
+bbbbhk
 ghnfb,jb
 skl.s
 [nskbb'
