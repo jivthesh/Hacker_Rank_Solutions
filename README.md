@@ -4,8 +4,7 @@ bbbbhk
 ghnfb,jb
 s
 
-dmd;mb
-bm
+dmd;m
 m
 dmbd
 m[m
