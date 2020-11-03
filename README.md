@@ -5,8 +5,8 @@ bbbbhkg
 ghnfb,jbbv
 skl.sbk
 sn;b.jbjlvsv'
-[nskbb'eelgk
-vd;l
+[nskbb'eel
+v
 bm
 d
 mb
