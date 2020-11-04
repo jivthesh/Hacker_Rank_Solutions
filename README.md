@@ -1,8 +1,12 @@
 bb # Hacker_Rank-solution
-kkkk
-bbbbhk
-ghnfb,jb
-s
-
-dmd;m
-m
+kkkkyiuyiyi
+bbbbhkiiyhui
+ghnfb,jbhihiuiuhu
+syuiyuitiyiuyuiiiiy
+fguyuyiugytiyu
+dmd;myiyuiyiyi
+miuyiyuiyiyiuityityiytiyi
+jpojprfe
+hk]hokpkkhypkpokhhkk]h
+ktk
+[]ktpyh[kky[ky[ph
