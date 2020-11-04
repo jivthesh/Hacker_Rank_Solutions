@@ -6,7 +6,6 @@ syuiyuitiyiuyuiii
 fguyuyiug
 dmd;myiyuiy
 miuyiyuiyiyiuityityi
-jpojpr
-hk]hokpkkhypkpokhhkk]h
+jpojp
 k
 []ktpyh[kky[ky[p
