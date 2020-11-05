@@ -3,8 +3,7 @@ kkkkyiuyiyi
 bbbbhkiiyhui
 ghnfb,jbhihiui
 syuiyuitiyiuyui
-fguyuy
-d
+fguy
 miuyiyuiyi
 jpo
 []ktp
