@@ -6,8 +6,7 @@ gnfnfgf
 dfbnkbnjkdvbvd
 [oifh[odohod
 divh[io[i
-]
-v[jvovjvjd
+
 v
 edofjjvpdjpojpfjvjg
 vidjfpvjedfojd
