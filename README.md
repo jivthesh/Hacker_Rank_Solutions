@@ -10,7 +10,7 @@ gke[kgp[
 lkkf'kg[kfgf[gr
 gk[prkg[fdkg[dkgd
 g[pek[pg[[dk[frkg][k
-gkf[kg[p
+gkf[kg
 [fpkg[
 gkfg
 k[fdg
