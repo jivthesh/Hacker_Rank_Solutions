@@ -1,5 +1,5 @@
 bb # Hacker_Rank-solution
-kkkkyiuyiyi
+kkkkyi
 bbb
 vldvdnldvn
 ;d;m
