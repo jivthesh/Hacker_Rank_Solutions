@@ -1,3 +1,19 @@
 bb # Hacker_Rank-solution
 kkkkyiuyiyi
 bbbbhki
+vldvdnldvnddf
+;d;mf;l;dfmdmjfd
+vdmfvfpvddog
+'dfopogpfpkgd
+gfdodfkvdfopkkdf
+dff[erp[gk[k[ge
+gke[kgp[k[pkged
+lkkf'kg[kfgf[gr
+gk[prkg[fdkg[dkgd
+g[pek[pg[[dk[frkg][k
+gkf[kg[pdfg
+[fpkg[
+gkfg
+k[fdg
+p[kgrpkg[ker\]]pegkgkr\
+gerthgdf
