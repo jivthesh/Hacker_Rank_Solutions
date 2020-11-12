@@ -1,7 +1,7 @@
 bb # Hacker_Rank-solution
 kkkkyiuyiyi
 bbbbhki
-vldvdnldvnddf
+vldvdnldvn
 ;d;mf;l
 vdmfvfpv
 'dfopogpfpkgd
