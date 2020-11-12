@@ -1,6 +1,6 @@
 bb # Hacker_Rank-solution
 kkkkyiuyiyi
-bbbbhki
+bbb
 vldvdnldvn
 ;d;m
 v
