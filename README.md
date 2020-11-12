@@ -2,7 +2,7 @@ bb # Hacker_Rank-solution
 kkkkyi
 bbb
 vldvdnldvn
-;d;m
+;d
 v
 'dfopogpfpkg
 gfdod
