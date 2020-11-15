@@ -13,5 +13,5 @@ gkf[kg
 [fp
 gkfg
 k[fdg
-p[kgrpkg[ker\]]pegkgkr\
+p[kgrpkg[ker\]]pegkg
 gerthgdf
