@@ -4,9 +4,7 @@ bbb
 vldvdnldvn
 ;d
 v
-'dfopogpfpkg
-
-lk
+'dfopogpfp
 gk[prkg[fdkg[
 g[pek[
 gkf[kg
