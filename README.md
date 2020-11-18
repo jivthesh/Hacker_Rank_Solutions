@@ -8,7 +8,6 @@ gk[prkg[fdkg[
 g[p
 gkf[kg
 
-g
-k[fdg
+
 p[kgrpkg[ke
 gert
